@@ -1,4 +1,19 @@
-### Hi there 👋
+### Hi there 👋🏼
+The name's Dalena but I go by Dee 🐰 (the bunny is my spirit animal)
+
+~
+
+Northcoders student and aspiring data engineer! ✨
+
+I've been in sales for the last 6yrs and ready for a new chapter 📖
+
+~
+
+🐶 Massive dog lover
+
+🎮 Call of Duty addict
+
+🏊🏼‍♀️ The pool is my second home
 
 <!--
 **dalenachau/dalenachau** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
